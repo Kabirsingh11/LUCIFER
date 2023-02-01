@@ -1,0 +1,2 @@
+# LUCIFER
+Fuc'king DEVIL 🔥🖤👑😈👿
